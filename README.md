@@ -1,3 +1,4 @@
+![Juleth Belsabeth Flores Guerrero - Pandas](https://user-images.githubusercontent.com/104948373/216239790-c4da67be-6277-435a-b567-bb1bdd4e8307.png)
 # 2022II_GBI6_exam2
 ![Logotipo_Ikiam](https://user-images.githubusercontent.com/104948373/216206518-74364e0e-ec31-42b7-87c3-a534cc3a1aaf.png)
 
